@@ -1,0 +1,1 @@
+curriculo criado por PIETRO MAGNAGNAGNO OLIVEIRA
